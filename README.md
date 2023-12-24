@@ -11,6 +11,6 @@ Meu nome é Eliabe Antonio Silva, mais pode me chamar por Elszin se preferir.❤
 - eliabeantonio100@gmail.com.
 
 -***Meu perfil principal no instagran⤵️
--***INSTAGRAM [instagran](https://www.instagram.com/elszin._/).
+-***INSTAGRAM [instagran](https://www.instagram.com/elszin.hush/).
 -
 
