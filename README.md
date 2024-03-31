@@ -1,8 +1,8 @@
 # Olá, eu sou Eliabe ☕
 
 ## Sobre mim
-- 👨‍💻 Tenho 20 anos e estou no segundo ano do curso de Exatas.
-- ⚽️ Amante de esportes, especialmente futebol, basquete, futsal e vôlei.
+- 👨‍💻 Tenho 16 anos e estou no segundo ano do Ensino Médio cursando Exatas.
+- ⚽️ Gosto muito de esportes, especialmente futebol, basquete, futsal e vôlei.
 - 🎨 Gosto de desenhar, principalmente buscando inspirações na arte e na vida cotidiana.
 - 🎮 Apreciador de jogos e entusiasta da música estrangeira, especialmente aquelas em inglês, porque expressam profundamente a maioria dos sentimentos cotidianos.
 
