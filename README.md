@@ -7,7 +7,7 @@
 - 🎮 Apreciador de jogos e entusiasta da música estrangeira, especialmente aquelas em inglês, porque expressam profundamente a maioria dos sentimentos cotidianos.
 
 ## O que faço
-- 💻 Utilizo o Alura para guardar e aprimorar tudo aquilo que crio em plataformas escolares e em minha vida.
+- 💻 Utilizo o Alura para aprimorar tudo aquilo que crio em plataformas escolares e em minha vida.
 - 🌟 Utilizo JavaScript para desenvolver códigos compatíveis e aplico HTML e CSS extensivamente na criação de sites e outras aplicações. Recentemente tenho utilizado essas habilidades para atividades escolares, incluindo programação.
 
 - ## Quem sou eu
