@@ -17,4 +17,4 @@
 - 💻 "Assim como na programação, na vida também encontramos bugs e erros. O importante é aprender com eles, fazer as correções necessárias e continuar avançando em direção aos nossos objetivos."
 
 - ## Redes Sociais
-- 📷 Siga-me no Instagram: [@eliabe.silva._](https://www.instagram.com/eliabsilvakx/)
+- 📷 Siga-me no Instagram: [@eliabsilvakx_](https://www.instagram.com/eliabsilvakx/)
