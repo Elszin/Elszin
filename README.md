@@ -1,7 +1,7 @@
 # Olá, eu sou Eliabe ☕
 
 ## Sobre mim
-- 👨‍💻 Tenho 16 anos e estou no segundo ano do Ensino Médio cursando Exatas.
+- 👨‍💻 Tenho 17 anos e estou no terceiro ano do Ensino Médio cursando Exatas.
 - ⚽️ Gosto muito de esportes, especialmente futebol, basquete, futsal e vôlei.
 - 🎨 Gosto de desenhar, principalmente buscando inspirações na arte e na vida cotidiana.
 - 🎮 Apreciador de jogos e entusiasta da música estrangeira, especialmente aquelas em inglês, porque expressam profundamente a maioria dos sentimentos cotidianos.
@@ -17,4 +17,4 @@
 - 💻 "Assim como na programação, na vida também encontramos bugs e erros. O importante é aprender com eles, fazer as correções necessárias e continuar avançando em direção aos nossos objetivos."
 
 - ## Redes Sociais
-- 📷 Siga-me no Instagram: [@eliabsilvakx_](https://www.instagram.com/eliabsilvakx/)
+- 📷 Siga-me no Instagram: [@kaiiser.ii_](https://www.instagram.com/kaiiser.ii/)
